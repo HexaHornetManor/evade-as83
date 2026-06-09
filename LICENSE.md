@@ -1,4 +1,4 @@
-#  
+#  evade premium Scripts is the best evade Script, featuring teleport and auto-collect. Safe and powerful for all your needs.
 
 
 
